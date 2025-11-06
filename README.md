@@ -28,4 +28,4 @@
 
 ---
 
-⭐ *“Curious mind. Data-driven thinker. Always learning something new.”*  
+ *“Continuously learning and transforming challenges into solutions.”*  
